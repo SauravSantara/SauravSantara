@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Saurav Asimkumar Santara</h1>
-<h3 align="center">A fullstack java developer from India</h3>
+<h3 align="center">A Fullstack Java Developer as well as a Game Programmer from India</h3>
 
 - 🌱 I’m currently learning **Video Game Development**
 
