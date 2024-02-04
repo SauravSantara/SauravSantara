@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **joyz7298@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tlqJj3Xroew6a-GA9-D8E8fAAytd9tcK/view?usp=sharing](https://drive.google.com/file/d/1tlqJj3Xroew6a-GA9-D8E8fAAytd9tcK/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1iyA_vFlcHnNv4NcyBshae7THx5L0fCsf/view?usp=sharing](https://drive.google.com/file/d/1iyA_vFlcHnNv4NcyBshae7THx5L0fCsf/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
